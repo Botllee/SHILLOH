@@ -1,8 +1,8 @@
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
-# Venocyber Love bat 🔋 🔋
+# EUSEBIUS Love bat 🔋 🔋
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
-### By Venocyber Tech ###
+### By EUSEBIUS Tech ###
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
 <div>
 <p>This allow you to create a wonderful battery</p>
@@ -34,11 +34,11 @@ VERCEL PROCESS:
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
-### VENOCYBER TECH SOLUTIONS
+### EUSEBIUS TECH SOLUTIONS
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
 
-<b>DM me</b> by clicking [here](wa.me/255625774543)
-  or [here](wa.me/255749614269).   or [here](wa.me/255698101622)
+<b>DM me</b> by clicking [here](wa.me/254710415721)
+  or [here](wa.me/254710415721).   or [here](wa.me/254710415721)
 
   <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
   <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
