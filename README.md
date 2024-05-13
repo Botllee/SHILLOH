@@ -44,6 +44,6 @@ VERCEL PROCESS:
   <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
  <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
 
- ©²⁰²⁴VENOCYBER TECH
+ ©²⁰²⁴EUSEBIUS TECH
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
